@@ -45,15 +45,15 @@ Analyze input and generate contextually accurate emails
 Suggest subject lines for better open rates
 Ensure grammar, tone, and readability
 
-💬 Natural Optimized Tool 
+💬 Simple & User-Friendly Interface
 
 📅 Seo Friendly & help ranking higher
 
 🤖 Unique AI powered Tool
 
-👤 Simple and Interactive user interface
+👤 Simple & User-Friendly Interface
 
-⌚Time saving and More Productive
+⌚Instant Love Percentage Result
 
 
 🚀 𝐋𝐈𝐕𝐄 𝐃𝐄𝐌𝐎
